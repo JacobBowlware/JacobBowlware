@@ -1,6 +1,6 @@
 # Jacob Bowlware
 
-**`CS Student - Web Developer`**
+**`University of Oklahoma | Computer Science Major | Mathematics Minor`**
 
 
 <!--
